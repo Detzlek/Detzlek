@@ -1,1 +1,1 @@
-- 👋 Hi, Gora ETA
+- 👋 Hi, i´m Miko.
